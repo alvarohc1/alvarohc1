@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning b/DAM/b
 - 💞️ I’m looking to collaborate on ... tbh don't know
 - 📫 How to reach me alvaroisaias2002@gmail.com
-- 😄 Pronouns: he/him
 - ⚡ Fun fact: i like coding in notepad 🗿
 
 <!---
